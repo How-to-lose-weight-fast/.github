@@ -37,7 +37,9 @@ Many users say that consistent use over a few weeks really made a difference —
 
 > “I’ve been using it for a month, and my jeans fit better. I just feel healthier overall!” – *Lily, 52*
 
-👉 [Click here to read the full story of Lily and discover how it could change your life too.](https://hepato-burn.carrd.co/)
+
+👉 [Click here to read the full Transformation story of Lily and discover how it could change your life too.](https://hepato-burn.carrd.co/)
+
 
 ### The Not-So-Great:
 
